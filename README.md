@@ -1,1 +1,3 @@
-# .github
+# *When You Need To Stop Thinking | Alan Watts Guide to Stillness*
+## *Discover why stopping thinking is essential for creativity and peace. Learn how stillness opens you to the unspeakable world and the extraordinary hidden in everyday life. Discover 15 soulful, practical steps to quiet your mind and reconnect with inner peace. Inspired by timeless wisdom. 🔔 Follow for more soul-aligned wisdom.* [More details…](https://spiritualkhazaana.com/web-stories/when-you-need-to-stop-thinking/)
+## #StopThinking #AlanWatts #howtostopthinking #Meditation #Mindfulness #Stillness #InnerPeace #Consciousness #Zen #Present Moment #CreativeFlow #UnspeakableWorld #EverydayMagic #InnerPeace #SpiritualAwakening #Mindfulness #LetGo #SoulCare
